@@ -1,0 +1,2 @@
+# Blue_Archive
+Funny
